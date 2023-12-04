@@ -14,6 +14,8 @@ Tell her you coded it.
 
 Kiss her/him
 
+![Uploading image.png…]()
+
 Fun fact: I'm single bruuh
 
 Result : [https://youtu.be/dXHfe60kGd0](https://youtu.be/SiQ9f2JPEFo)
