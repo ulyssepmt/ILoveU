@@ -16,7 +16,7 @@ Kiss her/him
 
 Fun fact: I'm single bruuh
 
-Result : https://youtu.be/dXHfe60kGd0
+Result : [https://youtu.be/dXHfe60kGd0](https://youtu.be/SiQ9f2JPEFo)
 
 ❤
 
