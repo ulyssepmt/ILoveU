@@ -1,0 +1,7 @@
+﻿  ILoveU.c
+C:\Users\ulyss\source\repos\ILoveU\ILoveU\ILoveU.c(63,73): warning C4028: paramètre formel 3 différent de la déclaration
+  Génération de code en cours
+  Previous IPDB not found, fall back to full compilation.
+  All 5 functions were compiled because no usable IPDB/IOBJ from previous compilation was found.
+  Fin de la génération du code
+  ILoveU.vcxproj -> C:\Users\ulyss\source\repos\ILoveU\x64\Release\ILoveU.exe
