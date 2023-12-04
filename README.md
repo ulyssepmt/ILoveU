@@ -14,7 +14,7 @@ Tell her you coded it.
 
 Kiss her/him
 
-![Uploading image.png…]()
+![image](https://github.com/ulyssepmt/ILoveU/assets/89702597/17ef714b-dfbc-4f6b-9f38-d43f6cf17eb9)
 
 Fun fact: I'm single bruuh
 
